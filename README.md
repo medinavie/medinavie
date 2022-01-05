@@ -1,5 +1,5 @@
 - 🦋 Hi, I’m @medinavie
-- 👁👄👁 I’m interested in languages, alas not the coding type.
+- 👁👄👁 I’m interested in languages, alas not the programming type.
 - 🙃 I’m currently learning how to handle living in a perpetual existential crisis.
 
 <!---
